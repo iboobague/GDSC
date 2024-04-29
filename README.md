@@ -1,1 +1,1 @@
-A la découverte de ChatGPT, quelques paragraphe pour expliquer ChatGPT
+A la découverte de ChatGPT, quelques paragraphes pour expliquer ChatGPT
